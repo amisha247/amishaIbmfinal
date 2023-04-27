@@ -1,2 +1,0 @@
-# amishaIbmfinal
-drowning people
